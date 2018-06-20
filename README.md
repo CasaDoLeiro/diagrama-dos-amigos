@@ -1,0 +1,2 @@
+# diagrama-dos-amigos
+AQUI VOCÊ FAZ UMA AMIZADE BOA E COM BOAS INTENÇÕES
